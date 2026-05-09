@@ -1,4 +1,4 @@
-
+top ink game Script is the best ink game Script, featuring auto-sell and infinite resources. Safe and powerful for all your needs.
 
 
 
